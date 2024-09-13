@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on Gitcoin
 - 📫 How to reach me vochihuua997@gmail.com
-- 😄 Pronouns: Leoh  
+- 😄 Pronouns: He/him
 - ⚡ Fun fact: Rap/hiphop fan, a person love listening all genres of music
 
 <!---
